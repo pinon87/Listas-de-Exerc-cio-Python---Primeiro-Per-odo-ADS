@@ -1,0 +1,1 @@
+# Listas-de-Exerc-cio-Python---Primeiro-Per-odo-ADS
